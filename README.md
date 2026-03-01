@@ -1,4 +1,5 @@
-𓎟　. 　❛❛　 　 　𝜗𝜚
+*𓎟　. 　❛❛　 　 　𝜗𝜚*
 
-　 　⊹　⁾⁾　 　. 
-   ⠀⠀⠀⠀⠀⠀⠀⠀⠀full profile → [rentry.co](https://rentry.co/celinatime)
+　 　*⊹　⁾⁾　 　.*
+   ⠀⠀⠀⠀⠀⠀⠀⠀⠀current **one true pairing ship**: **noli x artful**
+   ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*and hi yes I'm now the ceo of this ship no one can't stop me now!!*
